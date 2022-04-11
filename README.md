@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nazmul2021
+- 👋 Hi, I’m @Nazmul HASAN
 - 👀 I’m interested in web designing
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on someone speacial
